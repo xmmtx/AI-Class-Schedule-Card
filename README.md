@@ -1,0 +1,1 @@
+# AI-Class-Schedule-Card
